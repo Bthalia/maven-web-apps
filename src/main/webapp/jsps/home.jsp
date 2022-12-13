@@ -22,9 +22,9 @@
 	</span>
 	<span style="font-weight: bold;">
 		JoinIT, 
-		Al Ain, Abu Dhabi,UAE
-		+971506043612,
-		tosamisaac7@gmail.com
+		2622 north meridian oklahoma city
+		4054135793
+		bthalia86@yahoo.com
 		<br>
 		<a href="tosamisaac7@gmail.com">Mail to JoinIT</a>
 	</span>
