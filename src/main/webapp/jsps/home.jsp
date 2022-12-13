@@ -24,7 +24,7 @@
 		JoinIT, 
 		2622 north meridian oklahoma city
 		4054135793
-		bthalia86@yahoo.com
+		bthalia86@yahoo.com, Bella
 		<br>
 		<a href="tosamisaac7@gmail.com">Mail to JoinIT</a>
 	</span>
